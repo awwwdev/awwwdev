@@ -1,1 +1,1 @@
-![Frame 28](https://user-images.githubusercontent.com/78935540/229338338-5d9975d5-8b57-4972-9427-f2362157c15d.png)
+![Hi. I am a Fontend Developer and a Designer](https://user-images.githubusercontent.com/78935540/229338870-2919ecba-3b7e-4a70-bcc8-49bae811bd9f.png)
