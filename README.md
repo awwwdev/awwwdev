@@ -1,1 +1,1 @@
-![Front-end Developer and UI Designer](https://github.com/user-attachments/assets/8f70c685-528d-44b2-b282-323c1b0a11b7)
+![A Web Developer with Design Superpowers](https://github.com/user-attachments/assets/ffcf9c62-8f97-4b4a-8f65-fb5d8fd5c841)
